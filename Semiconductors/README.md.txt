@@ -1,0 +1,1 @@
+Applied quantitative research on the semiconductor market
